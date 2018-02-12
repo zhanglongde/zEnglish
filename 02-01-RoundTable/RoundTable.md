@@ -1,6 +1,7 @@
 RountTable
 
 ## 2018 ##
+### Feb.9-What are differences between successful people and ordinary people? ###
 ### Feb.8-No More free rescures for rule-breaking on Huangshan Mountain ###
 ### Feb.7-Professional Internet Trolls ###
 troll 钓鱼
@@ -30,6 +31,25 @@ sniffing 嗅探
 ### FO Xi or Buddha-like youths in China ###
 ### Must-have items when Chinese people leave the house ###
 
+### Oct.9-How was your National Day holiday week? ###
+### Oct.4-Creative mooncakes boost sale ###
+### Oct.2 Would you like to have a “Staycation” during National Day holiday? ###
+staycation 在家度假
+### Sep.29 - China to End Moblile Electronic Devices Ban on Flight ###
+### Sep.28-Why is Danmu or bullet comment popular in China? ###
+### Sep27-Break-up fee in relationships ###
+### Sep.26-What's work spouse? ###
+### Sep.25-Unique Ways Chinese People Socialize ###
+### Sep.22-What does the Mercury Retrograde mean in China? ###
+mercury 水星
+Mercury Retrograde 水星逆行
+### Sep.21-Sina Weibo withdraws a smoking emoji,to ban smoking ###
+### Sep.20-Why do Chineses business like to put on a show? ###
+put on a show 装模作样
+### Sep19-Elderly parent help growup kid wash underwear,is it too much? ###
+### Sep.18-WePhone boss leapt to his death over divorce 'despair' ###
+leapt leap 跳跃
+despair 沮丧
 ### Sep.15-Chilhood snacks,a reminiscience for Chinese young people ###
 snack 小吃 快餐；吃快餐
 ### Sep.14-Woman hides her pregnancy in employment ###

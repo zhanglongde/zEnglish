@@ -1,6 +1,12 @@
 RountTable
 
 ## 2018 ##
+### Feb.23-Do Parents Own the Lucky Money Gifted to Their Children? ###
+What do Chinese people do when they go home?
+### Feb.22-Post-festival syndromes ###
+Canada Goose VS domestric down jacket
+Canada Goose 黑天鹅
+down jacket 羽绒服
 ### Feb.14-Valentines Day ###
 why is it hard to make friends and what to do it?
 ### Feb.13-Unesco World Radio Daya 2018 ###
@@ -35,9 +41,41 @@ slang 俚语
 ### Dec.28-How the lonely youths in China gain comforts from sniffing cats? ###
 sniffing 嗅探
 ### Dec.27-Why DO Couples Start to Look Like Each Other ###
-### FO Xi or Buddha-like youths in China ###
-### Must-have items when Chinese people leave the house ###
+### Dec.26-FO Xi or Buddha-like youths in China ###
+### Dec.25-Must-have items when Chinese people leave the house ###
 
+
+### Nov.1-Middlw age unemployment and greasy middle aged men ###
+greasy middlw aged man 中年油腻大叔
+### Oct.31-Halloweeb party kicks off and you know about the Zhongyuan Festival in China? ###
+kick off 开始；开球
+### Oct.30-Jingongmen,are you lovin' it? ###
+### Oct.27-Wuhan sets university graduates' minimum wage ###
+### Oct.26-Is ther still room for errand companies to expand in China? ###
+errand 差使
+errand company 跑腿公司
+### Oct.25-Chengdu plans to sell decorated home only 5 years later ###
+### Oct.24-Mobile payment platform contribute to public welfare causes ###
+public welfare causes 公共福利事业
+cause事业
+### Oct.23-Targeted poverty alleviation in China ###
+targeted 定向的
+allevaition 减轻
+poverty alleviation 扶贫
+### Oct.20-Firing up robotics in a small town ###
+fire up 发动
+### Oct.19-'Made in China' subway trains to hit the US market ###
+subway train 地铁
+### Oct.18-Oversea returnees start their own business back to China ###
+returnee 海归
+### Oct.17-Food-delivery wastes cause strain on environment ###
+Food-delivery 送餐
+### Oct.16-Global survey found young people willing to work as long as possible ###
+### Oct.13-Japanese TV show triggers public discussion on the lack of romantic ###
+### Oct.12-Szechuan Sauce amazed Amerians ###
+### Oct.11-The Rising Popu;arity of Corporate Apps such as Ding Ding ###
+corporate app
+### Oct.10-Online Voting is a bigger Buniness Than you think ###
 ### Oct.9-How was your National Day holiday week? ###
 ### Oct.4-Creative mooncakes boost sale ###
 ### Oct.2 Would you like to have a “Staycation” during National Day holiday? ###
@@ -61,4 +99,5 @@ despair 沮丧
 snack 小吃 快餐；吃快餐
 ### Sep.14-Woman hides her pregnancy in employment ###
 ### Sep.13-Shanghai's 135-year-old temple makes historic move ###
+
 ## 2016 ##

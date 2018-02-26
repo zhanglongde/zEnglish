@@ -45,6 +45,25 @@ sniffing 嗅探
 ### Dec.25-Must-have items when Chinese people leave the house ###
 
 
+
+### Nov.14-Internet clash over murder case of Chinese student in Japan ###
+clash 冲突
+murder case 谋杀案
+### Nov.13-Things you regret buying during the shopping spree ###
+spree 狂欢
+### Nov.10-Stratagies for Double Eleven Day Shopping Frenzy ###
+### Nov.9-Tomato Omelet and a real International Student Experience ###
+omelet鸡蛋饼
+tomato omelet西红柿炒鸡蛋
+### Nov.8-China launches literary for plagiarism ###
+plagiarism 剽窃
+literary 文学的
+### Nov.7-Chinese court creates Divorce Exam for couples ###
+### Nov.6-Seasonal crawfish restaurants close doors for 4 months per year ###
+### Nov.3-Jay Chou's fan disssed her ex at concert ###
+diss 侮辱
+### Nov.2-Inserted advertisement skecth sees a sharp rise in TV drama on the internet ###
+sketch 素描
 ### Nov.1-Middlw age unemployment and greasy middle aged men ###
 greasy middlw aged man 中年油腻大叔
 ### Oct.31-Halloweeb party kicks off and you know about the Zhongyuan Festival in China? ###

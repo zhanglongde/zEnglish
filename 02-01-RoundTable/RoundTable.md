@@ -1,6 +1,10 @@
 RountTable
 
 ## 2018 ##
+### Feb.26-Visitor steals thumb of Terracotta Warrior statue in US ###
+It's better to be single.
+thumb 拇指
+Terracotta Warrior 兵马俑
 ### Feb.23-Do Parents Own the Lucky Money Gifted to Their Children? ###
 What do Chinese people do when they go home?
 ### Feb.22-Post-festival syndromes ###
@@ -46,6 +50,18 @@ sniffing 嗅探
 
 
 
+### Nov.23-Elimation of Violence against Women ###
+### Nov.22-Hangzhou city sets up China's first "Medical Mall" ###
+set up 建立
+### Nov.21-Will meal-kit service revive home cooking ###
+home cooking 家常菜
+### Nov.20-High school top students stabs teacher to death ###
+### Nov.17-Internet Giants Vernture Offline ###
+Are we use too many memes or stickers?
+sticker 标签
+Internet Giants 互联网巨头
+### Nov.16-Younger husband in over 30% of marriages in Hangzhou ###
+### Nov.15-Ningbo city allows students to stop wrting homework after 10pm ###
 ### Nov.14-Internet clash over murder case of Chinese student in Japan ###
 clash 冲突
 murder case 谋杀案

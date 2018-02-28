@@ -1,6 +1,10 @@
 RountTable
 
 ## 2018 ##
+### Feb.27-Working Exchange Trip ###
+Working Exchange 工作交流
+housing boom in small cities
+Poor sleep quality comes from the all the things U do since morning
 ### Feb.26-Visitor steals thumb of Terracotta Warrior statue in US ###
 It's better to be single.
 thumb 拇指

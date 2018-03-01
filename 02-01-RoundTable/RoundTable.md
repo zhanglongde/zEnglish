@@ -1,6 +1,8 @@
 RountTable
 
 ## 2018 ##
+### Feb8-China to cancel enrollment of students of special talents ###
+Mistakes smart people never make twice
 ### Feb.27-Working Exchange Trip ###
 Working Exchange 工作交流
 housing boom in small cities
@@ -42,7 +44,14 @@ dump 倾倒
 ### Jan.24-How has milk tea won the heart of Chinese people ###
 ### Jan.23-More second children bore than first children in 2017 ###
 
-
+### Jan.8-Are your sleeping habits aging you ###
+### Jan.5-Alipay's annual spending report arouse public discussion ###
+annual spending report
+arouse public discussion
+### Jan.4-Secrets in the food delivery service ###
+### Jan.3 - The Worst Passwords We Could Ever Imagine ###
+### Jan.2-Vegetables or meat,what goes in first in hot pot ###
+hot pot
 ## 2017 ##
 ### Dec.29-China reveals hottest internet slangs of 2017 ###
 slang 俚语
@@ -51,9 +60,33 @@ sniffing 嗅探
 ### Dec.27-Why DO Couples Start to Look Like Each Other ###
 ### Dec.26-FO Xi or Buddha-like youths in China ###
 ### Dec.25-Must-have items when Chinese people leave the house ###
-
-
-
+### Dec.22-Chilren's Victoria's secret show sparks controversies in Chinese social network ###
+### Dec.21-China railway introduces pointing system into membership service ###
+pointing system
+### Dec.20-China launch environmental protection tax reform ###
+### Dec.19-Trade booming on China'a online secondhand marketplace ###
+### Dec.18-Calls to promote loans ###
+### Dec.15-Strange habits of people of different cultural backgrounds ###
+### Dec.14-Jiangsu drafts law for more paternity leave ###
+paternity 父权
+paternity leave 陪产假
+### Dec.13-Cheating in gaming ###
+### Dec.12-Am I the only one? ###
+### Dec.11-JInan to build world's first photovoltaic expressway ###
+ photovoltaic expressway 高速光伏公路
+### Dec.8-Fortune global forum in guangzhou ###
+### Dec.4-New translation guidelines in effect ###
+translation guideline 翻译准则
+### Dec.1-seasonal dating disorder or pattern ###
+seasonal dating disorder 季节性约会失调
+### Nov.30-Moments when you realize you are an adult ###
+### NOv.29-China cuts tariffs on consumer goods ###
+tariff 关税
+consumer goods 日用消费品
+### Nov.28-Wife or husband's relatives' uninvited home visits ###
+### Nov.27-Winter is coming for bike sharing services ###
+### Nov.24-Chinese universities improve performance in 7th Annual global university employability ranking ###
+performance 性能，成绩
 ### Nov.23-Elimation of Violence against Women ###
 ### Nov.22-Hangzhou city sets up China's first "Medical Mall" ###
 set up 建立

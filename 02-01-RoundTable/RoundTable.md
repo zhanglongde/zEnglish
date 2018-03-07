@@ -1,6 +1,10 @@
 RountTable
 
 ## 2018 ##
+### Mar.6-Bid data make you pay more ###
+Is a dog show handler a new profession?
+handler驯兽师
+7 Ways to wake up
 ### Mar.5-Top concern of Chinese Internet users prior the Two Session ###
 prior 在前的
 the Two Session 两会
@@ -34,9 +38,14 @@ punch in 打卡上班
 unpaid wages of migrant workers
 ### Feb.9-What are differences between successful people and ordinary people? ###
 ### Feb.8-No More free rescures for rule-breaking on Huangshan Mountain ###
+Ordering food in China is an imperative social skill
+Critical hacks to getting up,moving on, and getting over your heratbreak
+heartbreak伤心事
 ### Feb.7-Professional Internet Trolls ###
 troll 钓鱼
 ### Feb.6-Who is applying for the Alibaba job ###
+Should we bring food to Hotpot places?
+Presents that guy like
 ### Feb.5-Chinese customers trust domestric brands over foreign brands ###
 ### Sports-oriented Overseas Study Gaining Traction ###
 traction 牵引力

@@ -1,6 +1,9 @@
 RountTable
 
 ## 2018 ##
+### Mar.5-Top concern of Chinese Internet users prior the Two Session ###
+prior 在前的
+the Two Session 两会
 ### Mar.1-Beijing's nostalgic foods business ###
 nostalgic 怀旧的
 time to call the drinking bluff
@@ -48,12 +51,43 @@ ghosting 重影
 dump 倾倒
 ### Jan.24-How has milk tea won the heart of Chinese people ###
 ### Jan.23-More second children bore than first children in 2017 ###
-
+### Jan.22-Things you must do when you;re single ###
+### Jan.19-a popular variety show brings cultural relics back to life ###
+variety show 综艺节目
+cultural relics 文化遗产
+### Jan.18-Survey on household education spending shows families' increased demands ###
+household家庭的
+household education家庭教育
+### Jan.17-Online dating platform explains the marriage value of the floating singles population ###
+floating singles
+### Jan.16-Chinese people spend 3.9 tillion on dinning in 2017 ###
+### Jan.15-Q&A live stream platforms,fast track to make some cash ###
+live stream platforms
+fast track快速通道
+### Jan.12-Dating simulation game wins the hearts and wallets of female gamers ###
+dating simulation game恋爱模拟游戏
+### Jan.11-Woman blocks high-speed train for husband ###
+### Jan.10-Restaurants snap up fake donkey meat ###
+snap up 抢购
+snap 突然的
+sports shoes ruins blind date
+ruin破坏
+blind date事件一无所知的约会
+### Jan.9-Why people like to do things in groups ###
+in groups
+Send school bullies to correctional work-study schools a good or not
+bullies 地痞
 ### Jan.8-Are your sleeping habits aging you ###
+snow village guest house is found fleecing guests
+snow village guest house 雪村宾馆
+fleecing 飞逝的
 ### Jan.5-Alipay's annual spending report arouse public discussion ###
 annual spending report
 arouse public discussion
 ### Jan.4-Secrets in the food delivery service ###
+Street cleaner a dangerous job in China
+4 warning signs that you are in a toxic relationship
+toxic有毒的
 ### Jan.3 - The Worst Passwords We Could Ever Imagine ###
 ### Jan.2-Vegetables or meat,what goes in first in hot pot ###
 hot pot

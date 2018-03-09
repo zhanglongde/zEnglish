@@ -1,6 +1,12 @@
 RountTable
 
 ## 2018 ##
+### Mar.8-She leads,she empowers ###
+empower授权
+### Mar.7-China pledges to improve people's livelihood ###
+pledge 许诺
+livelihoood 生计；生活
+Simple things you can do to improve your your live extraordinary.
 ### Mar.6-Bid data make you pay more ###
 Is a dog show handler a new profession?
 handler驯兽师

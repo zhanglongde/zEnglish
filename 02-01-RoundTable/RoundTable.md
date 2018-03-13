@@ -1,6 +1,11 @@
 RountTable
 
 ## 2018 ##
+### Mar.12-Smartisan and 360 mobiles are rumored to merge? ###
+smartisan 锤子科技
+Skills of men that women appreciate most
+### Mar.9-Online music platforms share music copyright ###
+"Vegetable" means differently among folks from northern and southern
 ### Mar.8-She leads,she empowers ###
 empower授权
 ### Mar.7-China pledges to improve people's livelihood ###
@@ -57,8 +62,8 @@ Presents that guy like
 traction 牵引力
 ### Feb.1-Colleges and vocational schools obsessed with an fancy new names ###
 ### Jan31-Foreign five star hotel not making profit in China ###
-### Jan30-is it good to know your coworker's salary? ###
-### Online insurance boom and Keepinglispstick while eating ###
+### Jan30-Is it good to know your coworker's salary? ###
+### Online insurance boom and Keeping lispstick while eating ###
 ### Jan.26-Anoraxia in China and fake friends ###
 anoraxia 厌食症
 ### Ghosting is the easiest way to dump someone ###

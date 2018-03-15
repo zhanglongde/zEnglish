@@ -1,12 +1,18 @@
 RountTable
 
 ## 2018 ##
-### Mar.12-Smartisan and 360 mobiles are rumored to merge? ###
+### Mar.14-Should we lend money to friends? ###
+Should China allow couples to have kids to adopt?
+### Mar.13-Should college tuition be increased? ###
+guy arrested after demanding compensation for **expired products**.
+expired product过期产品
+Does the weather affect our mood?
+### Mar.12-**Smartisan** and 360 mobiles are rumored to merge? ###
 smartisan 锤子科技
 Skills of men that women appreciate most
 ### Mar.9-Online music platforms share music copyright ###
 "Vegetable" means differently among folks from northern and southern
-### Mar.8-She leads,she empowers ###
+### Mar.8-She leads,she **empowers** ###
 empower授权
 ### Mar.7-China pledges to improve people's livelihood ###
 pledge 许诺

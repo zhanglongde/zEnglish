@@ -1,6 +1,11 @@
 RountTable
 
 ## 2018 ##
+### Mar.16-Mattel Unveils Chinese "Shero" barbies ###
+Wuhan is China's Happiest city.
+unveil veil
+shero  (she)hero
+barby 芭比 
 ### Mar.15-Cup noodles on high-speed tranis ###
 China ban children under 3 from taking Pidotimod
 8 ways to cut stress

@@ -2,6 +2,7 @@ words
 
 charisma 魅力
 addicting charisma
+anal肛门的
 
 
 curated 
@@ -19,9 +20,17 @@ apparatus 装置 仪器
 
 
 
+hooker
+callgirl
+spycam
+peeping偷窥
+homemade国产
+aussie澳洲人
+horny淫荡的
 
-
-
+inception 起初，盗梦空间
+roadmap 路标
+anemic 贫血的
 
 
 朝花夕拾

@@ -1,6 +1,18 @@
 RountTable
 
 ## 2018 ##
+### Mar.20-How Urban villages give life to modern cookie-cutter cities ###
+urban village 城中村
+[Architect Meng Yan on what it will take to save Shenzhen’s vibrant village communities in the face of relentless redevelopment.](https://www.sixthtone.com/news/1001915/how-urban-villages-give-life-to-modern-cookie-cutter-cities#)
+relentless无情的
+redevelopment 再开发
+vibrant 充满生气的
+on the fringes of development
+malignant tumor 恶性肿瘤
+
+Jobs suitable for introverts and extroverts.
+introvert 内向的
+What your profile pic says about you
 ### Mar.19-China unveils massive institutional reform plan ###
 institutional制度的
 can APPs help women conceive

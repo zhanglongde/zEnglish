@@ -1,6 +1,8 @@
 RountTable
 
 ## 2018 ##
+### Apr.2-Blind singer denied bank account ###
+Signs that you're loving the one that you shouldn't.
 ### Mar.30-Thriving business of creative cultural souvenirs of Palace Museum ###
 Wang Baoqiang shows up for the golden broom award.
 broom 金雀花

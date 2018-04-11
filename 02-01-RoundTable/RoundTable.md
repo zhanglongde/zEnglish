@@ -1,6 +1,11 @@
 RountTable
 
 ## 2018 ##
+### Apr.10-City to be Re-named after a Novel? ###
+An evaluation on China'a video streaming platforms with Iqiyi vs Bilibili as case studies.
+eye rolling 转动眼珠
+### Apr.9-Taxi drivers quit in Nanjing ###
+Two things men and women do that make their partner crazy
 ### Apr.5-Is it the end for supermarkets? ###
 QingMing Festival
 Little habits that can lead to a happier life.

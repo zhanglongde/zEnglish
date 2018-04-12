@@ -1,6 +1,10 @@
 RountTable
 
 ## 2018 ##
+### Apr.11-Beijing to strengthen the regulation on non-monitor vehicles. ###
+Borns to be tamed-The biker bangs revving on China's road.
+rev 增长
+tame 驯服
 ### Apr.10-City to be Re-named after a Novel? ###
 An evaluation on China'a video streaming platforms with Iqiyi vs Bilibili as case studies.
 eye rolling 转动眼珠

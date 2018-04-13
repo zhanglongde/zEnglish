@@ -1,6 +1,9 @@
 RountTable
 
 ## 2018 ##
+### Apr.12-Huge personnel reduction in five major Chinese bandks in 2017 ###
+Why does the generation born in the 1990s value most.
+Reasons you face the same problems again and again
 ### Apr.11-Beijing to strengthen the regulation on non-monitor vehicles. ###
 Borns to be tamed-The biker bangs revving on China's road.
 rev 增长

@@ -1,6 +1,12 @@
 RountTable
 
 ## 2018 ##
+### Apr.16-Are cities struggling for tablent or demographic stability ###
+demographic 人口统计学的
+demographic stability 人口稳定
+Fortnightly gig attendance exntends life expectancy.
+fortnight 隔周的
+fortnightly gig attendance 每两周的演出出席
 ### Apr.12-Huge personnel reduction in five major Chinese bandks in 2017 ###
 Why does the generation born in the 1990s value most.
 Reasons you face the same problems again and again

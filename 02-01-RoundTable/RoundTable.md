@@ -1,6 +1,8 @@
 RountTable
 
 ## 2018 ##
+### Apr.18-Misleading commercial for so-called medicnal liquor starts controversy ###
+How to be more persuasive instead of argumentative.
 ### Apr.17-Do Chinese people still love eating pork? ###
 Candidate disqualified a job position by robot
 Common posture problems and how to fix them.

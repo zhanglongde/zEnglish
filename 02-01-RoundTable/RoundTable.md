@@ -1,6 +1,9 @@
 RountTable
 
 ## 2018 ##
+### Apr.26-Will smart speakers stole the show from smartphones? ###
+Pregnant women intentionally trips 4-year-old-boy   trip绊倒/旅游
+Ways to revitalize your home.
 ### Apr.25-Mental Health of Cops ###
 Bad decisions you make without realizing.
 ### Apr.24-Should ambulances be charged he high way toll? ###

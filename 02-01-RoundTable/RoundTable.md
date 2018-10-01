@@ -1,6 +1,21 @@
 RountTable
 
 ## 2018 ##
+### Sep.28-Trend of paid knowledge is still on the rise in China ###
+### Sep.27-Beijing to Establish workershops for parents ###
+workshop 讲习班
+### Sep.26-Should firefighters help residents without keys open their doors ###
+### Sep.24 - Mid-Autumn Festival 2018 ###
+### Sep.25-Residents sign up with commmunity general doctors ###
+### Sep.21-World Car Free Day ###
+### Sep.20 - Dental Health Problem Bugs Chinese People ###
+bug 烦扰
+### Sep.19-Chinese people consume too much soybean oil ###
+soybean 大豆
+### Sep.18 - The Scientific Flaws of Online Dating Sites ###
+flaw 缺陷，裂痕
+
+
 ### Is it time to upgrade our school uniforms? ###
 Farm breeding cockroaches for pharmaceutical purposes
 pharmaceutical
